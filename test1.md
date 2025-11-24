@@ -5,5 +5,9 @@
   •	Clean the karmic imprint 
   •	If you consciously respond, your destiny will be very much in your hand. 
 
-2. reverse the number using the python 
+2. reverse the number using the python
+
+4. Stay in the pure stillness for 10 minutes
+
+5. 1 maun brata 
 
