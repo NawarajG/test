@@ -9,5 +9,7 @@
 
 4. Stay in the pure stillness for 10 minutes
 
-5. 1 maun brata 
+5. 1 maun brata + head bath + powerpose + ipo check + 4 baje uthne 
+
+6. 
 
